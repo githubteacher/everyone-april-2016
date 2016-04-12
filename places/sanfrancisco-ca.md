@@ -4,4 +4,6 @@
 
 - The Golden Gate Bridge
 - Amazing Beaches
-- SF Giants Staduim
+- SF Giants Stadium
+- La Taqueria
+- House of Prime Rib
