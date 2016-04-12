@@ -2,6 +2,7 @@
 
 
 #good places for Pizza:
+
 * Crostata's (East Side) _Best in Cle?_
 * Geraci's (East Side) _On Guy Fieri's __Diners, Dumps, and Dives__
 * Capri (West Side) _old school NY thin crust_
@@ -22,3 +23,4 @@ Steps for ordering pizza:
 6. drive home
 7. eat it
 8. regret
+
