@@ -9,3 +9,4 @@
 - Hit up the beach
 - Check out a hiking trail
 - Beer tasting
+- San Diego Zoo Safari Park
