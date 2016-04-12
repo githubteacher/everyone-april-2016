@@ -5,4 +5,4 @@
 ### Check it out
 
 
-This thing is great. We will need to merge the chnages very carefully to make sure there are no conflicts
+This thing is great. We will need to merge the chnages very carefully to make sure there are no conflicts in the file
