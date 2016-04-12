@@ -1,5 +1,8 @@
 ## San Diego, CA
 
-### Great Place to Eat
+### Great Places to Eat
+- Lolita's Taco Shop
+- Fillipi's Pizza
 
 ### Fun things to do
+- La Jolla Cove
