@@ -6,6 +6,7 @@
 - Aviator's Brewery gets great reviews!
 - Go to snoopy's really!
 - Try cooleys too! It is great!
+- Making something to delete!
 
 ### Fun things to do
 
