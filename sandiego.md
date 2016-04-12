@@ -6,6 +6,7 @@ Wine Vault & Bistro
 Urge Gastropub
 Cork & Craft
 Cucina Enoteca
+Jakes
 
 ### Fun things to do
 San Diego Zoo
