@@ -7,3 +7,4 @@
 ### Fun Things to Do
 
 - Belmont Park roller coaster.
+- Beaches
