@@ -4,6 +4,8 @@
 George's At the Cove
 Wine Vault & Bistro
 Urge Gastropub
+Cork & Craft
+Cucina Enoteca
 
 ### Fun things to do
 San Diego Zoo
