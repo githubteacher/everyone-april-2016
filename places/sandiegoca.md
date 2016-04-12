@@ -6,3 +6,4 @@
 
 ### Fun things to do
 - La Jolla Cove
+- Silverstrand Beach
