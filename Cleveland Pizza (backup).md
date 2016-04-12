@@ -24,3 +24,5 @@ Steps for ordering pizza:
 7. eat it
 8. regret
 
+# SECRET NOTES ONLY FOR V.1.0.0.1 users!
+....yup, here they are. pretty exciting, no?
