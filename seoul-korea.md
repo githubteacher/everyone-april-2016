@@ -8,3 +8,4 @@
 ### Fun things to do
 
 - Walk the river
+- more places to go added
