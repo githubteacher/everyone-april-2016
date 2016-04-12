@@ -1,5 +1,10 @@
-## This file is for San Diego CA.
+## San Diego, CA
 
-### Great Places To Eat
+### Great Places to Eat
 
-### Fun things to do
+- Corvette Diner is a fun family restaurant
+
+### Fun Things to Do
+
+- Belmont Park roller coaster.
+- Beaches
