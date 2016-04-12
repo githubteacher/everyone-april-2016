@@ -3,3 +3,4 @@
 ### Good Restaurants
 ### Places to hang around
 ### Tourist Attractions
+### But too much humid :(
