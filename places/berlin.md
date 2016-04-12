@@ -1,5 +1,5 @@
 ## Berlin, Germany
 
-### Great Places to Eat
+### Great Places to eat
 
-### Fun things to do
+### Fun Things to do
