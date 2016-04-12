@@ -7,3 +7,5 @@ Indian Food - Yak and Yeti
 
 ### Fun Things To Do
 Hiking 14ers
+- Hiking 14ers
+- Play in the olde town fountains
