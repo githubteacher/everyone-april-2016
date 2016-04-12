@@ -10,3 +10,4 @@
 - Check out a hiking trail
 - Beer tasting
 - San Diego Zoo Safari Park
+- Kit Carson Park
