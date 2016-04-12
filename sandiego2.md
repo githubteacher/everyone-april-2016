@@ -1,8 +1,8 @@
 ## San Diego, CA
 
 ### Great places to eat
-Blind Lady Ale House
-Panama 66
+Blind Lady Ale House (Pizza and Craft Beer, Normal Heights)
+Panama 66 (Outdoor/Patio, Balboa Park)
 
 ### Fun things to do
-Hike Iron Mountain
+Hike Iron Mountain (7 miles round trip)
