@@ -4,3 +4,5 @@
 
 ### Fun things to do
 
+## Great Weather
+
