@@ -6,3 +6,4 @@
 
 ### Fun Things to Do 
 - Hike the Hollywood Sign or go to one of the many beaches!
+### Fun things to do
