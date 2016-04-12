@@ -7,3 +7,5 @@ At the Square
 ### Fun Things to do
 Visit surrounding cities/towns
 Wine tasting
+
+I love this place
