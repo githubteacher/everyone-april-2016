@@ -9,3 +9,5 @@ Urge Gastropub
 San Diego Zoo
 San Diego Safari Park
 Torrey Pines State Park
+Seaport Village
+Moonlight Beach
