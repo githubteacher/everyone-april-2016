@@ -8,3 +8,4 @@
 ### Fun things to do
 
 - Drive on the highway!
+- Hike
