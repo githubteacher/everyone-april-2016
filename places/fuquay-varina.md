@@ -9,3 +9,4 @@
 ### Fun things to do
 
 - Go hiking at Raven Rock.
+- Or go to the mountains (2 hours to the west)
