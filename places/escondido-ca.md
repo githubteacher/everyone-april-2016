@@ -5,3 +5,6 @@
 - Stone Brewing is a great place for food, beer, and general hanging out
 
 ### Fun Things to Do
+- Hit up the beach
+- Check out a hiking trail
+- Beer tasting
