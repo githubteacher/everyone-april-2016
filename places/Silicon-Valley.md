@@ -4,6 +4,7 @@
 
 - The Fair
 - Go to Snoopy's
+- Yahoo!
 
 ### Fun things to do
 
