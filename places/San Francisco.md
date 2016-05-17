@@ -7,7 +7,7 @@
 
 ### Fun Things to do.
 - Go hiking at Raven Rock.
-- Biking at school.
+
 
 ### Great Shopping Place.
 - Tanforan Mall.
