@@ -7,6 +7,8 @@
 
 ### Fun Things to do.
 - Go hiking at Raven Rock.
+- Running out of places to recommend.
+- Really big town.
 
 
 ### Great Shopping Place.
